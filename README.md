@@ -1,1 +1,1 @@
-# Ashton-Jackovich
+# Hello everyone my name is Ashton Jackovich im currently going into my sophmore year here at waketech where im hoping to transfer to NC State after the year. Im a huge NFL fan where im a fan of the Denver Broncos. I enjoy watching movies where horror movies are my favoirte genre.  
